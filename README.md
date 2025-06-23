@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://heiliaoshezui1.pages.dev/">51吃瓜</a>
 
-点击访问：<a href="https://17chiguabudayang.pages.dev/">17吃瓜</a>
+点击访问：<a href="https://17chiguabudayang.pages.dev/">17吃瓜 - 黑料网</a>
 
 
 主要内容：
